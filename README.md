@@ -6,7 +6,7 @@
 - 👯 I’m looking to collaborate on ... Hmmmmmm
 - 🤔 I’m looking for help with ... My mental health 
 - 💬 Ask me about ... DONT!
-- 📫 How to reach me: ... [Email](bucaobryx@gmail.com)
+- 📫 How to reach me: ... Discord - imyowking#1653
 - 😄 Pronouns: ... 
 - ⚡ Fun fact: ... No fun.
 -->
